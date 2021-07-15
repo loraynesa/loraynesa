@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @loraynesa
 - 👀 I’m interested in marketing and project management
-- 🌱 I’m currently learning marketing and design thinking to solve enterprise's problems
+- 🌱 I’m currently learning marketing and design thinking to solve enterprises's problems
 - 💞️ I’m looking to collaborate on resolution 
 - 📫 How to reach me on:  my e-mail- lorayne.santos@ibm.com
 
