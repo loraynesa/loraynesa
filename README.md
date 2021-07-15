@@ -2,7 +2,7 @@
 - 👀 I’m interested in marketing and project management
 - 🌱 I’m currently learning marketing and design thinking to solve enterprise's problems
 - 💞️ I’m looking to collaborate on resolution 
-- 📫 How to reach me in my e-mail: lorayne.santos@ibm.com
+- 📫 How to reach me on:  my e-mail- lorayne.santos@ibm.com
 
 <!---
 loraynesa/loraynesa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
